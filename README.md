@@ -1,1 +1,1 @@
-https://nordfox123.github.io/rsschool-cv/cv
+https://nordfox123.github.io/rsschool-cv/
