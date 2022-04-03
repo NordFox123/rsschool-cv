@@ -1,1 +1,1 @@
-# rsschool-cv
+https://nordfox123.github.io/rsschool-cv/
